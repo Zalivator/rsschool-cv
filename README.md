@@ -1,1 +1,1 @@
-https://Zalivator.github.io/rsschool-cv/cv
+https://Zalivator.github.io/rsschool-cvv/cv
